@@ -1,1 +1,0 @@
-# -jankipatel05-github.io
